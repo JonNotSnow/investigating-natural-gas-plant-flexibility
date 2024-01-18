@@ -1,1 +1,1 @@
-# investigating-natural-gas-plant-flexibility-
+# Investigating Natural Gas Plant Flexibility
